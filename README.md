@@ -7,3 +7,6 @@ Ndryshimi Im
 Me i Fundit
 
 
+*** KY LINE U SHTUA NGA denOS7 ***
+
+
